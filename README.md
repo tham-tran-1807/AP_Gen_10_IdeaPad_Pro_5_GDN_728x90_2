@@ -1,0 +1,2 @@
+# AP_Gen_10_IdeaPad_Pro_5_GDN_728x90_2
+AP_Gen_10_IdeaPad_Pro_5_GDN_728x90_2
